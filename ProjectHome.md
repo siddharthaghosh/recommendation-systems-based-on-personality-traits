@@ -1,0 +1,5 @@
+Project 5 yang akan dilanjutkan menjadi sebuah TA,
+semangat teman-teman,
+ini adalah perjuangan terakhir kita,
+Tugas Akhir kita,dari semua tugas-tugas yang pernah kita kerjakan selama ini,
+kita harus meningkatkan effort kita,
